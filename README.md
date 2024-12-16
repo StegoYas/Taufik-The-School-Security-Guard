@@ -1,1 +1,1 @@
-## 3D Horror First Person Game | Kelompok-05 (XI PPLG-1)
+## 3D Horror First Person Game | Yahya Ayyas Syauqoni (XI PPLG-1)
